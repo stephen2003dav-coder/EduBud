@@ -1,0 +1,1 @@
+A calm, student-first school app that supports wellbeing, academics, and daily life without pressure or surveillance. Students gain clarity and self-awareness, teachers get context, counsellors see patterns early, and schools move from reactive systems to supportive care.
